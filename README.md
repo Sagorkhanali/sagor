@@ -1,0 +1,2 @@
+# sagor
+Published my theory
